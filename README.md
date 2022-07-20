@@ -1,10 +1,10 @@
 ### Data Analyst, Digital Analyst and Content Strategist
-I’m currently working on Data Analyst and Sales Projects,
+I’m currently working on Data Analyst and Digital content Projects,
 
-You can Ask me about My Work
+I will be updating and sharing my work here whenever i get the chance to
 
-How to reach me: Feel free to send a message
+You can ask me about My Work
 
-Pronouns:She/Her
+Pronouns: She/Her
 
 Fun fact: Anime Lover
